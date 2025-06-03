@@ -1,10 +1,8 @@
 # 🏆 Corinthians: Orgulho da Fiel
 
-## 📅 Fundação e Identidade
+## ooie divas
 
-Fundado em **1º de setembro de 1910**, o **Sport Club Corinthians Paulista** nasceu da união de operários no bairro do Bom Retiro, em São Paulo.  
-Inspirado no **Corinthian Football Club de Londres**, o clube adotou o nome para refletir o espírito esportivo da época.  
-Suas cores tradicionais são **preto e branco**, e sua torcida, conhecida como **Fiel**, é uma das maiores do Brasil, com mais de **41 milhões de torcedores**.
+me chamo mariana tenho orgulho do meu timao, e aqui no meu perfil falo um pouco sobre ele .
 
 ---
 
