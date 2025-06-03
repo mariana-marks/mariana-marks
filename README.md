@@ -1,9 +1,9 @@
-# 🏆 Corinthians: Orgulho da Fiel
+ Orgulho da Fiel
 
 ## ooie divas
 
-me chamo mariana tenho orgulho do meu timao, e aqui no meu perfil falo um pouco sobre ele .
-
+me chamo mariana tenho orgulho do meu timao, e aqui no meu perfil falo um pouco sobre ele, estou cursando o primeiro ano do ensino medio .
+https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3cxanU3azlpbmc0eHltMmx5aGNtbTIxNHk0ajRnN2p4eDF0YmVyYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/WuZFeCtAKwjkY/giphy.gif
 ---
 
 ## 🏆 Conquistas
