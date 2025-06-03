@@ -2,11 +2,10 @@
 
 ## ooie divas
 
-me chamo mariana tenho orgulho do meu timao, e aqui no meu perfil falo um pouco sobre ele, estou cursando o primeiro ano do ensino medio .
-https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExN3cxanU3azlpbmc0eHltMmx5aGNtbTIxNHk0ajRnN2p4eDF0YmVyYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/WuZFeCtAKwjkY/giphy.gif
+me chamo mariana tenho 15 anos , estou cursando o primeiro ano do ensino medio e sou apaixonada pelo meu time do coraçao .
+
 ---
 
-## 🏆 Conquistas
 
 O Corinthians é um dos clubes mais vitoriosos do Brasil e da América do Sul, com **53 títulos oficiais**:
 
@@ -29,31 +28,10 @@ Antes disso, o clube utilizava o **Estádio do Pacaembu** como sua casa principa
 
 ---
 
-## ⚽ Estilo de Jogo
-
-O Corinthians é conhecido por seu estilo de jogo sólido e diciplinado, com forte marcaçao.
-
----
-
-## 📊 Estatísticas Recentes (2025)
-
-- Time mais driblador do **Brasileirão 2025**
-- **180+ dribles certos em 22 jogos**
-- **Gustavo Mosquito**: 45 dribles certos  
-- **Róger Guedes**: 90,9% de acerto em dribles
 
 
 ---
-
-## 👥 Perfil da Torcida
-
-- Renda familiar média: até R$ 8.800
-- Alto nível de escolaridade
-- Forte presença nas redes sociais e nos estádios
-
-
----
- Acompanhe o Timão
+ Acompanhe o Timão e eu tbm , ta cmg ta com deus.
 
 ---
 
